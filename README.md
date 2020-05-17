@@ -11,3 +11,5 @@ Steven Gillespie. What happened to Steven Gillespie. I remember Drill Sargeant G
 all thought Steven Gillespie looked like him. We called him Little Guthrie. I am back on the Github learning train.
 I always start and then stop. I have gained alot of weight since this stupin fake virus lockdown. I am gonna start learning 
 more tech to get a new job. 
+
+Cha Cha Cha
